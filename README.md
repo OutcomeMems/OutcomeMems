@@ -1,7 +1,12 @@
-<img width="900" height="543" alt="image" src="https://github.com/user-attachments/assets/e2a4a7b3-b2e9-4c03-816a-3e54197f38e8" />
+<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/308a1ed9-115d-4996-a9bf-541a15bf2fd3" />
 
+# Mai / Puddins :D . I adore sth and uhh
 
-# 
-[my atabook woahhh](https://azurepuddings.atabook.org/)    [pronouns thingy](https://pronouns.cc/@Maiiiii11111111) <img width="300" height="200" alt="image" src="https://github.com/user-attachments/assets/98c34a83-06f7-4b1e-bf57-62569e64a2df" />
+[. strawpage ⭐️](https://maipuddins.straw.page/)
+[. ata !!](https://azurepuddings.atabook.org/)
+[.  guns.lol 💫](https://guns.lol/azurepudding)
+[. pronouns ^_^ !!](https://pronouns.cc/@Maiiiii11111111)
 
 #
+
+<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/0f92d5b5-2c8f-489f-bbee-39daddd4d922" />
