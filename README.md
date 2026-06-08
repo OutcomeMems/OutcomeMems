@@ -2,7 +2,7 @@
 
 # Mai / Puddins :D . I adore sth and uhh
 
-[. strawpage ⭐️](https://maipuddins.straw.page/)
+[. new strawpage ⭐️](https://nyahok.straw.page)
 [. ata !!](https://azurepuddings.atabook.org/)
 [.  guns.lol 💫](https://guns.lol/azurepudding)
 [. pronouns ^_^ !!](https://pronouns.cc/@Maiiiii11111111)
