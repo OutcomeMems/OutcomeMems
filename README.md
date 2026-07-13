@@ -1,6 +1,5 @@
 ![Image](https://imgur.com/WXmQ55Y.png)
 ![Image](https://imgur.com/dcssgLl.png)
-![Image](https://imgur.com/dbnRJuo.png)
 
 ${\color{#9c0613}\textsf{ Hai im mai !!}}$ 
 
@@ -11,3 +10,4 @@ ${\color{#9c0613}\textsf{ Hai im mai !!}}$
  ${\color{#31a8bd}\textsf{ You can found out more about me with my sites down below!}}$ 
 
 wip....🥺🥺🤞
+![Image](https://imgur.com/dbnRJuo.png)
